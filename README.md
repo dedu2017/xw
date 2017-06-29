@@ -22,28 +22,17 @@
 
 ------------------------------------------------------------
  
+### ▶ 精彩网站 · 免翻直连
+<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
+<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
+------------------------------------------------------------
 ### ▶打开天窗,听一听外面的声音...
-
- <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c803879&from=apple">✪动  态  网（适合手机界面）</a><br/> 
-  </tr>
-  <tr>
-<td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogPipe.aspx?name=http%3A%2F%2F220%2F&from=apple">✪动  态  网 （适合电脑界面）</a><br/>
-  </tr>
-  <tr>
-      <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://140/&from=apple">✪大 纪 元...........全球最大的中文媒体</a><br/>
-   </tr>
-  <tr>
-      <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://130/&from=apple">✪新 唐 人...........全球最大的中文电视</a><br/>
-   </tr>
-  <tr>
-    <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogNews&from=apple">✪网   门...........汇聚全球最焦点资讯</a><br/>
-   </tr>
-  <tr>
     <td align=center>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
   </tr>
