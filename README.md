@@ -46,7 +46,7 @@
    </tr>
   <tr>
       <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=appl">✪中国禁闻...........报道中国最深度内幕</a><br/>
+**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻...........报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>      
