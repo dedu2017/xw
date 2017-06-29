@@ -53,15 +53,15 @@
   </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple"✪文昭解读.....解析全球最热门时事</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple">✪文昭解读.....解析全球最热门时事</a><br/>
    </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple"✪环球直击.....透析最新的全球资讯</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple">✪环球直击.....透析最新的全球资讯</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=appl"✪中国禁闻.....报道中国最深度内幕</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=appl">✪中国禁闻.....报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>      
