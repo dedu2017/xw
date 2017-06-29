@@ -1,7 +1,7 @@
 ##　欢迎来到翻越红墙 看真相！
 
 ### ▶ 精彩禁片请访问「网门」
-<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
+<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 
 ------------------------------------------------------------
 
