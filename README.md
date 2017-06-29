@@ -22,12 +22,8 @@
 
 ------------------------------------------------------------
  
-** ◆打开天窗,听一听外面的声音...
-</tr>
-  <tr>
-<td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
-  </tr>
-  <tr>
+### ▶打开天窗,听一听外面的声音...
+
   <td align=center>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F110%2F&from=apple">◆◆◆法轮大法明慧网◆◆◆</a><br/> 
   </tr>
@@ -83,7 +79,7 @@
    </tr>
   <tr>
  
-<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
+
 ------------------------------------------------------------
 </a>![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
