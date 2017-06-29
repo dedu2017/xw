@@ -5,7 +5,8 @@
 
 ------------------------------------------------------------
 
-<img src="https://github.com/dedu2017/me/blob/master/001.jpg" width="200"  height="60"></a>
+<img src="https://github.com/dedu2017/xw/blob/master/3704344.gif" width="200"  height="60"></a>
+
 
 ** ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 
