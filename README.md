@@ -37,45 +37,45 @@
   </tr>
   <tr>
 <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogNews&from=apple">✪网门头条   ◆汇聚全球最焦点资讯</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogNews&from=apple">✪网门头条.....汇聚全球最焦点资讯</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://140/&from=apple">✪大 纪 元    ◆全球最大的中文媒体</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://140/&from=apple">✪大 纪 元.....全球最大的中文媒体</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://130/&from=apple">✪新 唐 人    ◆全球最大的中文电视</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://130/&from=apple">✪新 唐 人.....全球最大的中文电视</a><br/>
    </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击    ◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击.....全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple"✪文昭解读    ◆解析全球最热门时事</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple"✪文昭解读.....解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻    ◆报道中国最深度内幕</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻.....报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple"✪环球直击    ◆透析最新的全球资讯</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple"✪环球直击.....透析最新的全球资讯</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816479&from=apple">✪美国之音    ◆世界最大的对外广播</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816479&from=apple">✪美国之音.....世界最大的对外广播</a><br/>
    </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816456&from=apple">✪希望之声    ◆中国24小时真实讯息</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816456&from=apple">✪希望之声.....中国24小时真实讯息</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816424&from=apple">✪自由亚洲    ◆听见亚洲真实的声音</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816424&from=apple">✪自由亚.....听见亚洲真实的声音</a><br/>
    </tr>
   <tr>
  
