@@ -24,11 +24,7 @@
  
 ### ▶打开天窗,听一听外面的声音...
 
-  <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?http%3A%2F%2F110%2F&from=apple">✪法轮大法明慧网</a><br/> 
-  </tr>
-  <tr>
-<td align=center>
+ <td align=center>
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c803879&from=apple">✪动  态  网（适合手机界面）</a><br/> 
   </tr>
   <tr>
@@ -36,20 +32,20 @@
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogPipe.aspx?name=http%3A%2F%2F220%2F&from=apple">✪动  态  网 （适合电脑界面）</a><br/>
   </tr>
   <tr>
-<td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogNews&from=apple">✪网门头条.....汇聚全球最焦点资讯</a><br/>
+      <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://140/&from=apple">✪大 纪 元...........全球最大的中文媒体</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://140/&from=apple">✪大 纪 元.....全球最大的中文媒体</a><br/>
-   </tr>
-  <tr>
-      <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://130/&from=apple">✪新 唐 人.....全球最大的中文电视</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?name=http://130/&from=apple">✪新 唐 人...........全球最大的中文电视</a><br/>
    </tr>
   <tr>
     <td align=center>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击.....全球华语最热脱口秀</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?ogNews&from=apple">✪网   门...........汇聚全球最焦点资讯</a><br/>
+   </tr>
+  <tr>
+    <td align=center>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
   </tr>
   <tr>
     <td align=center>
