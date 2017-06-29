@@ -1,4 +1,4 @@
-##                 -------欢迎来到翻越红墙 看真相！-------
+##　欢迎来到翻越红墙 看真相！
 
 ### ▶ 精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
@@ -9,7 +9,6 @@
 
 ** ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 
-** ◆浏览器请使用谷歌浏览器   
 
 **<a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=apple">**✪ 翻墙通道1**</a>　　　　　　
 **<a href="https://gyhc.azureedge.net/oGate.htm?from=apple">**✪ 翻墙通道2**</a>
