@@ -118,6 +118,28 @@
 [提交网址4](http://t.cn/RoODTce)   [提交网址5](http://t.cn/RoODTfo)   [提交网址6](http://t.cn/RoODTxT) 
 
 ---------------------------------------------------------
+
+
+### ▶ 特别关注
+<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="200" height="60"></a>
+<a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="200" height="60"></a>
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TenYears.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839781/6bb1dc52-1d26-11e7-837d-0e08741a315b.jpg" width="200" height="60""></a>
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TieZheng.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="200" height="60"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="200" height="60"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="200" height="60"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="200" height="60"></a>
+<a href="https://d229rk9l49nnml.cloudfront.net/cangzishi.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="200" height="60"></a>
+
+**●经典下载**（高速）
+
+【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
+
+【绝处逢生】 各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
+
+愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
+
+音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
+
 **●TXT电子书下载**
 
 **九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
@@ -125,29 +147,6 @@
 **江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
 **风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
 **绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
-**●经典视频下载**（高速）
-
-【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0&2016)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0&2016) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0&2016) 
-
-【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0&2016)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0&2016)
-【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0&2016)
-
-【纪录片：我们告诉未来 】 [高速下载](https://mega.nz/#F!ctwFTTaQ!kz9NNpS6-4MnyaCx6AzpfA)
-
-一、气功铺路| 二、大法开传|三、破迷与正心 |四、从常人到修炼人 | 五、山雨欲来
-
- 六、在魔难中| 七、艰难岁月 | 八、真相与人心|九、来源与使命|十、封锁与反封锁
-
-【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
-
-【绝处逢生】
-
-各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
-
-愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
-
-音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
 -------------------------------------------------------------
 
