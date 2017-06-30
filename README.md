@@ -1,6 +1,7 @@
-## 欢迎来到翻越红墙 看真相！
+## 欢迎来到 翻越红墙！
 
-   网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/dedu 
+   网址不定期更新，连不上时，请不同时间再试试。
+   封锁严厉！请收藏 https://git.io/dedu 
 
 ### ▶ 精彩禁片请访问「网门」
 <a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
