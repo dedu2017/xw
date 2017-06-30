@@ -123,8 +123,8 @@
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="200" height="60"></a>
 <a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="200" height="60"></a>
-<a href="https://d36twsqkt5gsfh.cloudfront.net/TenYears.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839781/6bb1dc52-1d26-11e7-837d-0e08741a315b.jpg" width="200" height="60""></a>
 <a href="https://d36twsqkt5gsfh.cloudfront.net/TieZheng.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="200" height="60"></a>
+
 <a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="200" height="60"></a>
 <a href="https://d229rk9l49nnml.cloudfront.net/cangzishi.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="200" height="60"></a>
 
