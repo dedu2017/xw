@@ -1,4 +1,4 @@
- ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 翻越红墙之软件通道篇！
+ ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 翻越红墙--软件篇！
 
   ** 网址不定期更新，连不上时，请不同时间再试试。
   
