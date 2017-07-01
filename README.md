@@ -86,11 +86,10 @@
 
 【安卓版翻墙软件】
 
-**网门安卓版**<a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk">安卓版</a>   <a href="https://raw.githubusercontent.com/ogate/up/master/chrome.zip">电脑版</a>  
+**网门安卓版**下载地址 [网门安卓版下载](https://raw.githubusercontent.com/ogate/up/master/chrome.apk) 
+[网门电脑版下载](https://raw.githubusercontent.com/ogate/up/master/chrome.zip) 
 
-**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
-
-8月9日无界发布安卓版3.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
+**无界一点通**下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
@@ -101,8 +100,6 @@
 **自由门** 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
 **无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
-
-
 
 ------------------------------------------------------------
 
