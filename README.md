@@ -119,8 +119,8 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://t.cn/RoODT5M)   [提交网址2](http://t.cn/RoODTth)   [提交网址3](http://t.cn/RoODTc4) 
-[提交网址4](http://t.cn/RoODTce)   [提交网址5](http://t.cn/RoODTfo)   [提交网址6](http://t.cn/RoODTxT) 
+[提交网址1](http://358.dedu.me/?ogST.aspx?&from=apple&tag=114})   [提交网址2](http://3oh58.dedu.me/?ogST.aspx?&from=apple&tag=11jhsh)   [提交网址3](http://3dsgd58.dedu.me/?ogST.aspx?&from=apple&tag=11ksfaw) 
+[提交网址4](http://ewgerw8.dedu.me/?ogST.aspx?&from=apple&tag=dsg2)   [提交网址5](http://3sfa58.dedu.me/?ogST.aspx?&from=apple&tag=dsq4)   [提交网址6](http://3asfwr58.dedu.me/?ogST.aspx?&from=apple&tag=13532514) 
 
 ---------------------------------------------------------
 
