@@ -28,18 +28,16 @@
 **<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=apple">**✪ 翻墙通道6**</a>
 
 
-------------------------------------------------------------
- 
-### ▶ 精彩网站 · 免翻直连
-<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="200" height="60"></a>
-<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="200" height="60"></a>
-<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="200" height="60"></a>
-
-<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="200" height="60"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="200" height="60"></a>
-<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="200" height="60"></a>
-
-------------------------------------------------------------
+------------------------------------------------------------------------------------------------------------------------
+### ▶ 特别关注 点击图片可直达
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816712_2_1&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816779&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839781/6bb1dc52-1d26-11e7-837d-0e08741a315b.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816787&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?cc816770&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
 ### ▶打开天窗,听一听外面的声音...
    <td align=center>  
 **<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
@@ -101,30 +99,38 @@
 
 **无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
+-
+
 ------------------------------------------------------------
 
-![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
+### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
+[【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
-**●快退出共产党、共青团、少先队，保平安！**
+
+<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
+<a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
+<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
+
+------------------------------------------------------------
+
+### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
+<a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！
+------------------------------------------------------------
 
-[提交网址1](http://358.dedu.me/?ogST.aspx?&from=apple&tag=114})   [提交网址2](http://3oh58.dedu.me/?ogST.aspx?&from=apple&tag=11jhsh)   [提交网址3](http://3dsgd58.dedu.me/?ogST.aspx?&from=apple&tag=11ksfaw) 
-[提交网址4](http://ewgerw8.dedu.me/?ogST.aspx?&from=apple&tag=dsg2)   [提交网址5](http://3sfa58.dedu.me/?ogST.aspx?&from=apple&tag=dsq4)   [提交网址6](http://3asfwr58.dedu.me/?ogST.aspx?&from=apple&tag=13532514) 
-
----------------------------------------------------------
-
-
-### ▶ 特别关注
-<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="200" height="60"></a>
-<a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="200" height="60"></a>
+### ▶ 精彩网站 · 免翻直连
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
 
 
-<a href="https://d36twsqkt5gsfh.cloudfront.net/TieZheng.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="200" height="60"></a>
-<a href="https://d229rk9l49nnml.cloudfront.net/cangzishi.mp4?from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="200" height="60"></a>
-
+[网门oGate](http://rong.yov.li) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
 **●经典下载**（高速）
 
 【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
