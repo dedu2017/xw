@@ -7,7 +7,7 @@
 ------------------------------------------------------------
 
 ### ▶ 精彩禁片请访问「网门」
-<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
+<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="500" height="123"></a>
 
 ------------------------------------------------------------
 
@@ -81,8 +81,7 @@
 
 **●最新翻墙软件下载**
 
-
-</a>![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
+<a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu2.gif" width="500" height="123"></a>
 
 【安卓版翻墙软件】
 
@@ -132,8 +131,7 @@
 **绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
 -------------------------------------------------------------
-
-![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
+<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu4.gif" width="500" height="123"></a>
 
 **●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
@@ -144,7 +142,7 @@
 ------------------------------------------------------------
 
 ### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
-<a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="500" height="123"></a>
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 
