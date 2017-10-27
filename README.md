@@ -69,6 +69,26 @@
   <tr>
  
 ------------------------------------------------------------
+## ■ 最新消息
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TransplantConfrence.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18499183/ac6d62a8-7a0a-11e6-9ac7-e9ab785b0af5.png" width="288" align=center></a>
+<a href="https://github.com/zx166/organ/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17829562/ba80bb8a-6680-11e6-9bb2-240f8dbf3b82.png" width="288" align=center></a>
+<a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17830020/351b2b5c-668e-11e6-84c4-369dfc296b32.png" width="288" align=center></a>
+## ■ 世界聚焦活摘器官罪恶
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="288" align=top-center style="max-width:100%"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279614/90f5e018-5746-11e6-8ad1-9b5d0eefdf46.jpg" width="288" align=top-center style="max-width:100%"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/RDHD_stop.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279332/3639ab34-573f-11e6-9baf-ab596dcbd721.jpg" width="288" align=top-center style="max-width:100%"></a>
+<a href="https://github.com/zx166/organ/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17452853/9af676dc-5b41-11e6-8307-9fb89cd060bc.png" width=872 vspace=7></a>
+<a href="https://github.com/zx166/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width=872></a>
+<a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width=872 vspace="7"></a>
+## ■ 死刑犯撑不起的蘑菇云
+<a href="https://github.com/zx166/organ/issues/3"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width=872 vspace=5></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17875434/292cec9a-68a0-11e6-9757-c33b0b0d96ac.png" width="434"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/TieZheng.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279985/f3275266-5751-11e6-8836-445857ac30b6.jpg" width="434"></a>
+<a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width=872 vspace=5></a>
+<a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width=872></a>
+## ■ 了解真相
+<a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434" style="max-width:100%"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434" style="max-width:100%"></a>
 
 ### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
@@ -111,34 +131,6 @@
 <a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
 -----------------------------------------------------------------------------------------------------------------------
 
-**●经典下载**（高速）
-
-【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
-
-【绝处逢生】 各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
-
-愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
-
-音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)  [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
-**●TXT电子书下载**
-
-**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
-**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
-**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
-**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
-**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
-
--------------------------------------------------------------
-<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu4.gif" width="500" height="123"></a>
-
-**●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
-
-[点击访问明慧网](http://t.cn/Ri80wPK)  [备用1](http://li.1x.de)    [备用2](http://fa.x9.eu)
-
-
-
-------------------------------------------------------------
 
 ### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
 <a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="500" height="123"></a>
