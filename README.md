@@ -40,43 +40,41 @@
 <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?cc816770&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
 ### ▶打开天窗,听一听外面的声音...
    <td align=center>  
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816850&from=apple">✪今日点击...........全球华语最热脱口秀</a><br/>
   </tr>
   <tr>
     <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple">✪文昭解读...........解析全球最热门时事</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816857&from=apple">✪文昭解读...........解析全球最热门时事</a><br/>
    </tr>
   <tr>
     <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple">✪环球直击...........透析最新的全球资讯</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816855&from=apple">✪环球直击...........透析最新的全球资讯</a><br/>
    </tr>
   <tr>
       <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻...........报道中国最深度内幕</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816860&from=apple">✪中国禁闻...........报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>      
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816479&from=apple">✪美国之音...........世界最大的对外广播</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816479&from=apple">✪美国之音...........世界最大的对外广播</a><br/>
    </tr>
   <tr>
     <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816456&from=apple">✪希望之声...........中国24小时真实讯息</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816456&from=apple">✪希望之声...........中国24小时真实讯息</a><br/>
    </tr>
   <tr>
       <td align=center>
-**<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816424&from=apple">✪自由亚洲............听见亚洲真实的声音</a><br/>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c816424&from=apple">✪自由亚洲............听见亚洲真实的声音</a><br/>
    </tr>
   <tr>
  
 ------------------------------------------------------------
 ## ■ 最新消息
-<a href="https://d36twsqkt5gsfh.cloudfront.net/TransplantConfrence.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18499183/ac6d62a8-7a0a-11e6-9ac7-e9ab785b0af5.png" width="288" align=center></a>
-<a href="https://github.com/zx166/organ/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17829562/ba80bb8a-6680-11e6-9bb2-240f8dbf3b82.png" width="288" align=center></a>
-<a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17830020/351b2b5c-668e-11e6-84c4-369dfc296b32.png" width="288" align=center></a>
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TransplantConfrence.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18499183/ac6d62a8-7a0a-11e6-9ac7-e9ab785b0af5.png" width="317" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17830020/351b2b5c-668e-11e6-84c4-369dfc296b32.png" width="317" height="123"></a>
 ## ■ 世界聚焦活摘器官罪恶
-<a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="288" align=top-center style="max-width:100%"></a>
-<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279614/90f5e018-5746-11e6-8ad1-9b5d0eefdf46.jpg" width="288" align=top-center style="max-width:100%"></a>
-<a href="https://d20w0cl474g28w.cloudfront.net/organ/RDHD_stop.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279332/3639ab34-573f-11e6-9baf-ab596dcbd721.jpg" width="288" align=top-center style="max-width:100%"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg"width="317" height="123"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/RDHD_stop.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279332/3639ab34-573f-11e6-9baf-ab596dcbd721.jpg" width="317" height="123"></a>
 <a href="https://github.com/zx166/organ/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17452853/9af676dc-5b41-11e6-8307-9fb89cd060bc.png" width=872 vspace=7></a>
 <a href="https://github.com/zx166/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width=872></a>
 <a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width=872 vspace="7"></a>
@@ -87,8 +85,8 @@
 <a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width=872 vspace=5></a>
 <a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width=872></a>
 ## ■ 了解真相
-<a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434" style="max-width:100%"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434" style="max-width:100%"></a>
+<a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="317" height="123"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="317" height="123"></a>
 
 ### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
