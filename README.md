@@ -7,7 +7,7 @@
 ------------------------------------------------------------
 
 ## ■ 精彩禁片请访问「网门」
-<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="500" height="123"></a>
+<a href="http://kjdfug.dedu.me" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="640" height="123"></a>
 
 ------------------------------------------------------------
 
@@ -75,15 +75,15 @@
 ## ■ 世界聚焦活摘器官罪恶
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="317" height="123"></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/RDHD_stop.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279332/3639ab34-573f-11e6-9baf-ab596dcbd721.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx166/organ/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17452853/9af676dc-5b41-11e6-8307-9fb89cd060bc.png" width="500" height="123"></a>
-<a href="https://github.com/zx166/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width="500" height="123"></a>
-<a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width="500" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17452853/9af676dc-5b41-11e6-8307-9fb89cd060bc.png" width="640" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width="640" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width="640" height="123"></a>
 ## ■ 死刑犯撑不起的蘑菇云
-<a href="https://github.com/zx166/organ/issues/3"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="500" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/3"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="640" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17875434/292cec9a-68a0-11e6-9757-c33b0b0d96ac.png"  width="317" height="123"></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/TieZheng.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279985/f3275266-5751-11e6-8836-445857ac30b6.jpg"  width="317" height="123"></a>
-<a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width=872 vspace=5></a>
-<a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="500" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width="640" height="123"></a>
+<a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="640" height="123"></a>
 ## ■ 了解真相
 <a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="317" height="123"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="317" height="123"></a>
@@ -98,7 +98,7 @@
 
 ## ■ 最新翻墙软件下载**
 
-<a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu2.gif" width="500" height="123"></a>
+<a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk" target="_blank"><img src="https://raw.githubusercontent.com/osurf/up/master/tu2.gif" width="640" height="123"></a>
 
 【安卓版翻墙软件】
 
@@ -131,7 +131,7 @@
 
 
 ## ■ 我要三退　快退出共产党、共青团、少先队，保平安！
-<a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="500" height="123"></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="640" height="123"></a>
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 
