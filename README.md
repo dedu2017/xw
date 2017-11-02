@@ -138,7 +138,7 @@
 
 ## ■ 友好链接**
 
-[网门oGate](https://github.com/ogate/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
+[网门oGate](https://git.io/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)| [ 神韵:中国古典舞](https://github.com/dedu2017/gettruth/blob/master/README.md)| 
 
 QQ或360浏览器流氓拦截请放行。
 
